@@ -1,0 +1,1 @@
+World Bank. 2024. “Poverty, Prosperity, and Planet Report 2024: Pathways Out of the Polycrisis.” Overview booklet. World Bank, Washington, DC. License: Creative Commons Attribution CC BY 3.0 IGO
